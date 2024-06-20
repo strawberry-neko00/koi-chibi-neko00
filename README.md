@@ -2,7 +2,7 @@
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning java,python and sql cause i am an 11 grader 😄 
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me my email sainibhumika26@gmail.com
+- 📫 How to reach me my email mailtobhumikasaini2648@gmail.com
 - 😄 Pronouns: idk
 - ⚡ Fun fact: idk
 
